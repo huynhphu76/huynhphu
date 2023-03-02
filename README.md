@@ -4,9 +4,9 @@
 
 Giảng Viên : Nguyễn Trọng Nhật Kha 
 
-SV : Huỳnh Phú
+SV : Đặng QuangTín
 
-MSSV: PD06143
+MSSV: PD
 
 Nội Dung: 
 
